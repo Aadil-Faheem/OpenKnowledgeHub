@@ -78,6 +78,14 @@ src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnJpbmhoODNjNGZhcDRodWEyZ
    **Content Link:** [Google Drive Link](https://drive.google.com/drive/folders/1nAEYT2QVCrlVHqOWafxkIwN_tSDKLT0F?usp=sharing)
    
    <br>
+   
+### 2. **Random Collection of E-Books**  
+   **Offered By:** SkyBoundKnight  
+   **Duration:** Self-Learning  
+   **Included Files:** E-Books, PDFs, Docx  
+   **Content Link:** [Google Drive Link](https://drive.google.com/drive/folders/12XnxSfmMrgmNpuvIYl8BTq6bHWprRbje?usp=sharing)  
+
+   <br>
 
 
 ---
